@@ -1,2 +1,2 @@
 # Game Over!
-![tant_pis](https://eupi.uca.fr/medias/photo/ltvideoeupi_1616055883104-png?ID_FICHE=283)
+![tant_pis](https://upload.wikimedia.org/wikipedia/commons/7/70/Game_Over_logo.png)
